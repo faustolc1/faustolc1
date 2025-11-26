@@ -102,5 +102,4 @@ Main skills demonstrated:
 
 - LinkedIn: https://www.linkedin.com/in/fausto-leite-cavalcante-661364364/
 - GitHub: https://github.com/faustolc1
-- E-mail: (adicione um e-mail profissional aqui)
 
